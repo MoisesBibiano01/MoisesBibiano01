@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Moisés Bibiano
-- 👀 I’m interested in programing
+- 👀 I’m interested in ingressar em um munndo mais digital
 - 🌱 I’m currently learning english and programming
 - 🎓 I'm studying systems analysis and development at PUC-PR
 - 📫 you can contact me on instagram @xyswoon
